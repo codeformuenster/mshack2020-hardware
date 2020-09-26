@@ -1,2 +1,5 @@
 # mshack2020-hardware
 
+![1](img/photo5438430965249715720.jpg)
+![2](img/photo5438430965249715721.jpg)
+![3](img/photo5438430965249715722.jpg)
